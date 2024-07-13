@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Quvondiq
+- 👀 I’m interested in Programmer
+- 🌱 I’m currently learning Java Script
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me +998 (94)-234-07-53
+- 😄 Pronouns: 
+- ⚡ Fun fact: 
